@@ -27,6 +27,6 @@ Unlock the potential of AI-powered voices today with ElevenLabs!
 
 ## 🌐 Connect With Us:
 
-🔵 Facebook: [https://www.facebook.com/elevenlabs8](https://www.facebook.com/elevenlabs8)
-🐦 Twitter/X: [https://twitter.com/elevenlabs888](https://twitter.com/elevenlabs888)
-💬 Community Telegram: [https://discord.gg/elevenlabs](https://t.me/+3Jrm27340qQxYzc1)
+- **🔵 Facebook**: [https://www.facebook.com/elevenlabs8](https://www.facebook.com/elevenlabs8)
+- **🐦 Twitter/X**: [https://twitter.com/elevenlabs888](https://twitter.com/elevenlabs888)
+- **💬 Community Telegram**: [https://discord.gg/elevenlabs](https://t.me/+3Jrm27340qQxYzc1)
